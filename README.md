@@ -1,0 +1,1 @@
+# Wzornictwo-ywic-eposowydowych-patenty
